@@ -1,1 +1,1 @@
-# elbuenparn-pruebav01
+El buen pan: es una panadería que rescata el pan tradicional de méxico y lo lleva a la mesa  de las familias mexicanas. Cansados del pan mainstream y la alta repostería, buscamos recuperar las raíces de a través de pan tradicional, apreciado por su sencilles, su sabor y versatlidad.
